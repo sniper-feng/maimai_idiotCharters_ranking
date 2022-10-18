@@ -1,0 +1,1 @@
+# maimai_idiotCharters_ranking
